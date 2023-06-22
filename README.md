@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @shijiusuibaby
+- 👀 I’m interested in TVshows 
+- 🌱 I’m currently learning computer science 
+- 💞️ I’m looking to collaborate on any programming 
+- 📫 How to reach me school email
